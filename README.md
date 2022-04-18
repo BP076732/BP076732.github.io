@@ -1,2 +1,2 @@
-Consultas y solicitudes a nmrodriguez@bpba.com.ar.
+Contacto: nmrodriguez@bpba.com.ar.
 <!--- o por Skype --->
